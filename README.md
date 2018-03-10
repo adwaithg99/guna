@@ -1,3 +1,1 @@
 # guna
-keerthana 
-achyuth kun
